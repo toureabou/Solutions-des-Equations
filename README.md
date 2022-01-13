@@ -1,1 +1,0 @@
-# Solutions-des-Equations
